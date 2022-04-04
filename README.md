@@ -1,4 +1,4 @@
-# Eduardo? Zigma? Quien? ... Bueno, ese soy yo! 👋🏼
+# Eduardo? Quien? ... Bueno, ese soy yo! 👋🏼
 
 ¡¡Hola!! ✌
 
